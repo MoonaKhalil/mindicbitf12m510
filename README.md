@@ -1,0 +1,1 @@
+# mindicbitf12m510
